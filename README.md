@@ -1,3 +1,3 @@
-# maanyaos
+# maanyaoswebsite 
 
-maanya os is a extremely friendly operating system that provides you with maximum security . our team is providing you a consumer friendly and easy to use , minimum ram usage for your mobile and computer . ai is also inbuilt in it , which helps to organize data with ai powered agents . contact owner for more 
+maanya os Website is an extremely friendly website that tells about our imagination, our works for you and everything about us . please contacts us for more information.
